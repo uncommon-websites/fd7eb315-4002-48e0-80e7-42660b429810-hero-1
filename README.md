@@ -1,0 +1,2 @@
+# fd7eb315-4002-48e0-80e7-42660b429810-hero-1
+Hero section variant 1 for fd7eb315-4002-48e0-80e7-42660b429810
